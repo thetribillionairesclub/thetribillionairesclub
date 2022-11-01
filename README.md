@@ -1,4 +1,4 @@
-### The official Repository of the Tribillionaire's Club ⭐
+### The official GitHub of the Tribillionaire's Club ⭐
 ---
 - We are launching and launching HUGE 🚀
 - Look out for updates 👀  
